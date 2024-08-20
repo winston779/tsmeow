@@ -1,6 +1,6 @@
 # 千速喵机场官网地址
 
-最新地址：[tmsretc.top](https://tmsreta.top/register?aff=7NRdhgyk)
+最新地址：[tmsretc.top](https://tmsreta.top/zh/#/auth/signup;referral=7NRdhgyk)
 
 ## 千速喵介绍
 
