@@ -1,6 +1,6 @@
 # 千速喵机场官网地址
 
-最新地址：[tmsretc.top](https://tmsrets.top/#/register?code=P2tieAFx)
+最新地址：[tmsretc.top](https://pupuwaf.tosm0.com/#/register?code=P2tieAFx)
 
 ## 千速喵介绍
 
