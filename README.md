@@ -1,6 +1,6 @@
 # 千速喵机场官网地址
 
-最新地址：[tmsretc.top](https://lpunp.com/#/register?code=P2tieAFx)
+最新地址：[tmsretc.top](https://lpunp.org/#/register?code=P2tieAFx)
 
 ## 千速喵介绍
 
